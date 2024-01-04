@@ -1,1 +1,1 @@
-![image](https://tenor.com/pl/view/guangdong-tigers-gif-22464729)
+![Guandong Tigers](https://tenor.com/bGqgv.gif)
